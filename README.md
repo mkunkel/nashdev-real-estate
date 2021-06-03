@@ -7,6 +7,8 @@ A place to share recommendations, resources, tips, etc. PRs very much welcome.
 ## Insulation
 [Foamworx](https://www.sprayfoamworx.com/)
 
+## Tree Services
+[The Tree Experts](https://instagram.com/treeexpertstn) - (615) 777-3959
 
 ## Pest Control
 [Trapper Jack](https://trapperjack.com/)
