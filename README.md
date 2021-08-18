@@ -8,7 +8,7 @@ A place to share recommendations, resources, tips, etc. PRs very much welcome.
 [Foamworx](https://www.sprayfoamworx.com/)
 
 ## Tree Services
-[The Tree Experts](https://instagram.com/treeexpertstn) - (615) 777-3959
+[The Tree Experts](https://instagram.com/treeexpertstn) - (615) 777-3959  
 [Dixieland Tree Service](https://dixielandtreeservice.com) - (615) 595-6720
 
 ## Pest Control
