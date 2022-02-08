@@ -2,7 +2,7 @@
 A place to share recommendations, resources, tips, etc. PRs very much welcome.
 
 ## Realtors
-[Amy Eskew](https://homesforsale.benchmarkrealtytn.com/idx/agent/5919/amy-eskew)
+[Amy Eskew](https://homesforsale.benchmarkrealtytn.com/idx/agent/5919/amy-eskew)  
 [Jason White](https://www.parksathome.com/agents/jason-white/)
 
 ## Insulation
@@ -10,7 +10,7 @@ A place to share recommendations, resources, tips, etc. PRs very much welcome.
 
 ## Tree Services
 [The Tree Experts](https://instagram.com/treeexpertstn) - (615) 777-3959  
-[Dixieland Tree Service](https://dixielandtreeservice.com) - (615) 595-6720
+[Dixieland Tree Service](https://dixielandtreeservice.com) - (615) 595-6720  
 [Kaily's Tree Service](https://www.kailystreeservice.com/) - (615) 496-1542
 
 ## Pest Control
