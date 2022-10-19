@@ -21,3 +21,7 @@ A place to share recommendations, resources, tips, etc. PRs very much welcome.
 
 ## Interior / Exterior Painting
 [Nashville Painting Company](https://nashvillepaintingcompany.com/) - (615) 635-0350 
+
+## Electrician
+Steve The Electrician - (615) 289-4058‬
+
